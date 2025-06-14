@@ -9,7 +9,7 @@
 
 Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionaly). I talk a lot when necessary or comfy . c + h are always welcome <3 . 
 
-**Basic DNI criteria** . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most definitely ignore you .
+[**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most definitely ignore you .
 
 
 
