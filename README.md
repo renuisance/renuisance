@@ -5,7 +5,7 @@
 
  ─── ⋆⋅☆⋅⋆ ───
 
-I love reading manhwas/manhuas, fics and writing my own stories. I prefer to talk less and listen more <3 
+I love reading manhwas/manhuas, fics and writing my own stories. Sometimes Semi-nonverbal. Only speaks ENG/FIL (occasionaly).
 
 
 
