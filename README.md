@@ -7,7 +7,7 @@
 
 I love reading manhwas/manhuas, fics, writing my own stories n' create artworks. (˶ˆᗜˆ˵;;)
 
-Sometimes Semi-nonverbal. Only speaks ENG/FIL (occasionaly). I talk a lot when necessary . c + h are always welcome <3
+Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionaly). I talk a lot when necessary or comfy . c + h are always welcome <3 . 
 
 
 
