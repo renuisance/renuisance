@@ -7,7 +7,7 @@
 
 **I love reading literature, mythology , manhwas/manhuas, fics, writing my own stories n’ create artworks.** (˶ˆᗜˆ˵;;)
 
-Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionaly). I talk a lot when necessary or comfy . c + h are always welcome <3 . 
+Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionaly). I talk a lot when necessary or comfy . c + h are always welcome <3 . Kindly do NOT cover me unless I hide myself to you . Idm touches , boops or silly interactions .
 
 [**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most definitely ignore you .
 
