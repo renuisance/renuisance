@@ -3,7 +3,7 @@
 
 ![Image](https://github.com/user-attachments/assets/504e4b51-078e-439c-b115-5dcabf8fd1d5)
 
-**“I'll just sometimes think about... the choices I made. Just what am I judging, and who will judge me in the end?”** *—Lu, Feng.*
+**“I'll just sometimes think about... the choices I made. Just what am I judging, and who will judge me in the end?”** 
 
  ⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀───── ⋆⋅☆⋅⋆ ─────
 
