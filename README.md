@@ -5,7 +5,7 @@
 
  ⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀───── ⋆⋅☆⋅⋆ ─────
 
-**I love reading literary, books , manhwas/manhuas, fics, writing my own stories n’ create artworks.** (˶ˆᗜˆ˵;;)
+**I love reading literature, mythology , manhwas/manhuas, fics, writing my own stories n’ create artworks.** (˶ˆᗜˆ˵;;)
 
 Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionaly). I talk a lot when necessary or comfy . c + h are always welcome <3 . 
 
