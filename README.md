@@ -11,7 +11,7 @@ Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionaly). I talk a lot when n
 
  ⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀───── ⋆⋅☆⋅⋆ ─────
  
-[**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most *definitely* ignore you . Often playing , afk , reading , studying or busy , etc , I will always indicate it !
+[**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most *definitely* ignore you . Often playing , afk , reading , studying or busy , etc , I will sometimes indicate it !
 
 
 
