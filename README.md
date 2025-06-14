@@ -13,7 +13,7 @@ Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionally). I talk a lot when 
  
 [**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most *definitely* ignore you . Often playing , afk , reading , studying or busy , etc , I will sometimes indicate it ! 
 
-**BYI** **I have ADHD, dyslexia and DID**. my mood swings a lot . I constantly make sarcastic remarks . will more likely yap once I’m comf w you! *my attitude* will reflect *yours.* (selectively)
+**BYI** . I have **ADHD, dyslexia and DID**. my mood swings a lot . I constantly make sarcastic remarks . will more likely yap once I’m comf w you! *my attitude* will reflect *yours.* (selectively)
 
 
 ![Image](https://github.com/user-attachments/assets/a6eff3a7-2ce9-4afc-b402-88eee659232f)
