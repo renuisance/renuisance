@@ -4,3 +4,7 @@
  ─── ⋆⋅☆⋅⋆ ───
 
 I love reading manhwas/manhuas, fics and writing my own stories. I prefer to talk less and listen more <3 
+
+
+
+![Image](https://github.com/user-attachments/assets/a8b0e526-0935-46ec-908c-dced8c632ccf)
