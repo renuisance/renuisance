@@ -19,6 +19,6 @@ Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionally). I talk a lot when 
 
 **BYI** . I have **ADHD, dyslexia and DID**. happens to have intense mood swings . I constantly make sarcastic remarks n’ cuss a LOT . will more likely yap once I’m comf w you! *my attitude* will reflect *yours.* (selectively) . Pls *don’t* make me repeat myself . mlm & wlw ships ok!! **selective** wlm ships .
 
-![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true/username=your-github-username&color=yellow)
 
 ![Image](https://github.com/user-attachments/assets/a6eff3a7-2ce9-4afc-b402-88eee659232f)
