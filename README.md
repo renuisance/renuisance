@@ -3,15 +3,15 @@
 
 ![Image](https://github.com/user-attachments/assets/504e4b51-078e-439c-b115-5dcabf8fd1d5)
 
-**“I’ll just sometimes think about... the choices I made. Just what am I judging, and who will judge me in the end?”** 
+“I’ll just sometimes think about... the choices I made. Just what am I judging, and who will judge me in the end?”**
 
- ⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀─────────── ⋆⋅☆⋅⋆ ───────────
+<p align="center">─────────── ⋆⋅☆⋅⋆ ───────────
 
 **I love reading literature, mythology , manhwas / manhuas / manga , fics, writing my own stories n’ create artworks.** (˶ˆᗜˆ˵;;)
 
 Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionally). I talk a lot when necessary or comfy . c + h are always welcome . Kindly do **NOT** cover me unless I hide myself to you I also avoid/dislike crowds . Idm touches , boops or silly interactions . If I walk away from u it’s either I respect your space or covering me, pls don’t take it as an offense <\3 .
 
-⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀─────────── ⋆⋅☆⋅⋆ ───────────
+<p align="center">─────────── ⋆⋅☆⋅⋆ ───────────
  
 [**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most *definitely* ignore you . Often playing , afk , reading , studying or busy , etc , I will sometimes indicate it ! 
 
