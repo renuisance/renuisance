@@ -11,7 +11,7 @@
 
 **I love reading literature, mythology , manhwas / manhuas / manga , fics, writing my own stories n’ create artworks.** (˶ˆᗜˆ˵;;)
 
-Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionally). I talk a lot when necessary or comfy . c + h are always welcome . Kindly do **NOT** cover me unless I hide myself to you I also avoid/dislike crowds . ask 2 add friend I do not accepr random ones ! . Idm touches , boops or silly interactions . If I walk away from u it’s either I respect your space or covering me, pls don’t take it as an offense <\3 .
+Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionally). I talk a lot when necessary or comfy . c + h are always welcome . Kindly do **NOT** cover me unless I hide myself to you I also avoid/dislike crowds . ask 2 add friend I do not accept them with no notice or heads up ! . Idm touches , boops or silly interactions . If I walk away from u it’s either I respect your space or covering me, pls don’t take it as an offense <\3 .
 
 <p align="center">─────────── ⋆⋅☆⋅⋆ ───────────
  
