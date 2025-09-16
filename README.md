@@ -15,9 +15,9 @@ Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionally). I talk a lot when 
 
 <p align="center">─────────── ⋆⋅☆⋅⋆ ───────────
  
-[**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most *definitely* ignore you . Often playing , afk , reading , studying or busy , etc , I will sometimes indicate it ! 
+[**Basic DNI criteria**](https://listography.com/basic_dni)  . **<13** & **20>** _unless mutual_ . Please don’t flirt or be freaky around me especially if we are not close, I will most *definitely* ignore you . Often afk/offtab or probably playing, drawing, reading , studying or busy , etc , I will sometimes indicate it ! 
 
-**BYI** . I have **ADHD, dyslexia and DID**. happens to have intense mood swings . I constantly make sarcastic remarks n’ cuss a LOT . will more likely yap once I’m comf w you! *my attitude* will reflect *yours.* (selectively) . Pls *don’t* make me repeat myself . mlm & wlw ships ok!! **selective** wlm ships . will be often afk/offtab — most probably playing, drawing or reading .
+**BYI** . I have **ADHD, dyslexia and DID**. happens to have intense mood swings . I constantly make sarcastic remarks n’ cuss a LOT . will more likely yap once I’m comf w you! *my attitude* will reflect *yours.* (selectively) . Pls *don’t* make me repeat myself . mlm & wlw ships ok!! **selective** wlm ships . 
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true/username=your-github-username&color=yellow)
 
