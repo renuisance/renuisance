@@ -12,7 +12,8 @@
 **I love reading literature, mythology , manhwas / manhuas / manga , fics, writing my own stories n’ create artworks.** (˶ˆᗜˆ˵;;)
 
 **iHATE F1 tis sport is ASS, but know my drivers!** cs55 : nr6 : mw2 : 
-Don’t like F1RPF? Get off my fucking lawn, son. I am a 6 + 44 truther . 
+
+**Don’t like F1RPF?** Get off my fucking lawn, son. I am a 6 + 44 truther . 
 
 Sometimes semi-nonverbal. Only speaks ENG/FIL (occasionally). I talk a lot when necessary or comfy . c + h are always welcome . Kindly do **NOT** cover me unless I hide myself behind you . I avoid/dislike crowds . ask 2 add friend I do not accept them with no notice or jst whisp to me ! . Idm touches , boops or silly interactions . If I walk away from u it’s either I respect your space or covering me, pls don’t take it as an offense <\3 .
 
