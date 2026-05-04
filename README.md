@@ -11,7 +11,7 @@
 
 **I love reading literature, mythology , manhwas / manhuas / manga , fics, writing my own stories n’ create artworks.** (˶ˆᗜˆ˵;;)
 
-**iHATE F1 tis sport is ASS, but know my drivers!** cs55 : nr6 : mw2 : 
+**iHATE F1 tis sport is ASS, but know my drivers!** cs55 : nr6 : mw2 : dr3
 
 **Don’t like F1RPF?** Get off my fucking lawn, son. I am a 6 + 44 truther . 
 
